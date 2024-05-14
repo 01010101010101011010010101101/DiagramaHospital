@@ -1,1 +1,1 @@
-# DiagramaHospital
+# ![c064ab85-4f95-4289-8056-cb00adca208f](https://github.com/01010101010101011010010101101/DiagramaHospital/assets/166523536/fecf28fc-0746-4b56-b5db-e418a388be37)
