@@ -1,2 +1,2 @@
 
-![Hospital](https://github.com/01010101010101011010010101101/DiagramaHospital/assets/166523536/779d036d-d949-4d6f-ae58-63e4002b2498)
+![image](https://github.com/01010101010101011010010101101/DiagramaHospital/assets/166523536/d5fdce6d-6eef-4b93-b875-5bf33024bb32)
